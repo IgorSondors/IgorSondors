@@ -1,4 +1,4 @@
-## ⚡ Deep:heavy_dollar_sign:Learning:heavy_dollar_sign:Engineer ⚡
+## Deep:heavy_dollar_sign:Learning:heavy_dollar_sign:Engineer
 
 ### If you looking for specialist :heavy_dollar_sign:
 
@@ -24,5 +24,5 @@
 - 😄 
 - ⚡ 
 👋
-- | :ru: | heavy_dollar_sign 
+:heavy_dollar_sign:
 -->
