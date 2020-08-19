@@ -1,4 +1,4 @@
-## :heavy_dollar_sign:Deep:heavy_dollar_sign:Learning:heavy_dollar_sign:Engineer:heavy_dollar_sign:
+## :heavy_dollar_sign:Deep Learning Engineer:heavy_dollar_sign:
 
 ### If you looking for specialist
 
