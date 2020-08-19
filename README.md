@@ -1,4 +1,4 @@
-## ⚡ I'm Deep Learning Engineer ⚡
+## ⚡ Deep Learning Engineer ⚡
 
 ### If you looking for specialist
 
