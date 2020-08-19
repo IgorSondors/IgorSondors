@@ -1,4 +1,4 @@
-## ⚡ Deep Learning Engineer ⚡
+## ⚡ Deep:heavy_dollar_sign:Learning:heavy_dollar_sign:Engineer ⚡
 
 ### If you looking for specialist :heavy_dollar_sign:
 
