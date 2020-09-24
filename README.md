@@ -9,7 +9,7 @@
 
 - Telegram: @igorsondors
 - [LinkedIn](https://www.linkedin.com/in/igor-sondors-06ba07b7/)
-- [kaggle](https://www.kaggle.com/igorsondors)
+- [Kaggle](https://www.kaggle.com/igorsondors)
 - [vk.com](https://vk.com/go_behind_nanowires)
 
 <!--
