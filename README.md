@@ -2,8 +2,8 @@
 
 ### If you looking for specialist
 
-- Here is my [resume](https://drive.google.com/file/d/1zw4LhN6vU5K05VGX4VjRvJUQ1y878xMK/view?usp=sharing) :uk:
-- and the [Russian one](https://drive.google.com/file/d/1yfmMdDfeKFHn6PZGo1KMCBAfsh8-wbQV/view?usp=sharing) :ru: 
+- Here is my [resume](https://drive.google.com/file/d/14ldtBpIsEoN3u5loM_mQ7bWthlglambN/view?usp=sharing) :uk:
+- and the [Russian one](https://drive.google.com/file/d/1Tq65qkrkPXK1NigimIaK0IXdrVDNOluX/view?usp=sharing) :ru: 
 
 ### You could contact me via
 
