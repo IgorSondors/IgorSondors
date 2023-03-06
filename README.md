@@ -3,7 +3,7 @@
 ### If you looking for specialist
 
 - Here is my [resume]([https://drive.google.com/file/d/14ldtBpIsEoN3u5loM_mQ7bWthlglambN/view?usp=sharing](https://drive.google.com/file/d/1WxFiKNxVo-Hs2s_hacHzhr4NYgzEbeu-/view?usp=share_link)) :uk:
-- and the [Russian one]([https://drive.google.com/file/d/1Tq65qkrkPXK1NigimIaK0IXdrVDNOluX/view?usp=sharing](https://drive.google.com/file/d/1rzTgb0BrU89u3kdz4gi6yT_StWFFWpKY/view?usp=share_link)) :ru: 
+- and the [Russian one](https://drive.google.com/file/d/1rzTgb0BrU89u3kdz4gi6yT_StWFFWpKY/view?usp=share_link) :ru: 
 
 ### You could contact me via
 
