@@ -1,9 +1,9 @@
-## :heavy_dollar_sign:Deep:heavy_dollar_sign:Learning:heavy_dollar_sign:Engineer:heavy_dollar_sign:
+## Deep Learning Engineer
 
 ### If you looking for specialist
 
-- Here is my [resume](https://drive.google.com/file/d/1WxFiKNxVo-Hs2s_hacHzhr4NYgzEbeu-/view?usp=share_link) :uk:
-- and the [Russian one](https://drive.google.com/file/d/1rzTgb0BrU89u3kdz4gi6yT_StWFFWpKY/view?usp=share_link) :ru: 
+- Here is my [resume](https://drive.google.com/file/d/1tXmAnqpI5s_atqpu1lXDxUDgM9HKwEt8/view?usp=sharing) :uk:
+- and the [Russian one](https://drive.google.com/file/d/1pd9cVP2j5RE0M3VrZxJRrIBQpffujLlw/view?usp=sharing) :ru: 
 
 ### You could contact me via
 
